@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @showican
+- 👋 Hi, I’m Xin Tao.
 - 👀 I’m interested in food.
 
 <!---
